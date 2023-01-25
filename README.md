@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **raniwalrahul2019@gmail.com**
 
-- ⚡ Fun fact **Don't know the genre of my humor**
+- ⚡ One thing i am obsessed with **TATAKAE**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
